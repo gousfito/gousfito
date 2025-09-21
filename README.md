@@ -23,40 +23,4 @@ Personal GitHub Pages site for gousfito
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-86coW4
+puymwFdZ
