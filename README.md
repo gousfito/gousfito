@@ -29,28 +29,4 @@ Personal GitHub Pages site for gousfito
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-uC3jm
+1WDsg
