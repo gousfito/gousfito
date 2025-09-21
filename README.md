@@ -35,22 +35,4 @@ Personal GitHub Pages site for gousfito
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-DLrc6d1W1q
+WuQXJ
