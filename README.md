@@ -1,22 +1,2 @@
 # gousfito.github.io
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-BtcxaHNZs
+d
